@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @elenakosss
 - 👀 I’m interested in self growing 
-- 🌱 I’m currently learning psychology to create self growing dating app.
+- 🌱 I’m currently watching the java course so wish me luck to finish it.
 - 📫 How to reach me ( 'get lucky' ).
 
 <!---
